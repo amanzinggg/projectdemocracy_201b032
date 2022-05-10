@@ -4,7 +4,7 @@ India is a democratic country.
 America is a democratic country as well.
 Pakistan isn't a democracy.
 
-I'm the one who knocks !!
+Bhutan too isnt a democracy.
 
 
 
